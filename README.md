@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @quaanjol
+- 👀 I’m interested in Developing though my major at university was Economics
+- 🌱 I’m currently learning more about mobile developing and really want to give a try in this field
